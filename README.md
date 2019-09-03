@@ -1,4 +1,5 @@
 # devops-aula04
 Lei e desordem
-Sintonia
+MindHunter
 o sombrio mundo de sabrina
+Irmão do Jorel
